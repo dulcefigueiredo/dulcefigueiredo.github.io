@@ -1,4 +1,4 @@
-![Robô Gir do Invader Zim montando em porco]([https://linkDaimagem.jpg](https://artfiles.alphacoders.com/124/12475.gif))
+![Robô Gir do Invader Zim montando em porco](https://artfiles.alphacoders.com/124/12475.gif)
 
 # Portifólio de Dulce Figueiredo
 
